@@ -18,3 +18,5 @@ The Gospel of Thomas that we almost lost. Sayings and Quotes.
 
 The disciples asked: “Do you want us to fast and what rules and how shall we pray?
 Jesus said : "Do not what you hate and tell no lie, for all things are plain to the face of Heaven. For nothing hidden will fail to be revealed, and nothing hidden/covered will remain without being exposed.”
+
+Jesus said : “Blessed is the lion a man eats so that the lion becomes a man, but cursed is the man that the lion eats so that the man becomes a lion.”
