@@ -14,3 +14,7 @@ The Gospel of Thomas that we almost lost. Sayings and Quotes.
 4. (He will be king over the All.) or he will reign over the universe”
 
  Jesus said: “If those who lead you say to you: See, the kingdom is in heaven, then the birds of the heaven will go before you; if they say to you: It is in the sea, then the fish will go before you. But the kingdom is within you, and it is outside of you. When you know yourselves, then you will be known, and you will know that you are the sons of the living Father. But if you do not know yourselves, then you are in poverty, and you are poverty.”
+
+
+The disciples asked: “Do you want us to fast and what rules and how shall we pray?
+Jesus said : "Do not what you hate and tell no lie, for all things are plain to the face of Heaven. For nothing hidden will fail to be revealed, and nothing hidden/covered will remain without being exposed.”
